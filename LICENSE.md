@@ -1,4 +1,4 @@
-
+top escape waves for lucky blocks Script offers the most advanced escape waves for lucky blocks Script, with auto-heal and one-hit kill. Perfect for
 
 
 
